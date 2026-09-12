@@ -1,5 +1,5 @@
 # 💫 About Me:
-CSE 3rd year undergrad
+CSE Final Year Undergrad
 
 
 ## 🌐 Socials:
